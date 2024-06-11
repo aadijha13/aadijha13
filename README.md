@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @aadijha13
+- 👋 Hi, I’m Sudhanshu Shekhar.
 - 👀 I’m interested in Coding, Tech, photographe, sleep
 - 🌱 I’m currently learning Ai/Ml
 - 💞️ I’m looking to collaborate on ...
