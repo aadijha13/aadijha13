@@ -3,7 +3,7 @@
 - 🌱 I’m currently learning Ai/Ml
 - 💞️ I’m looking to collaborate on ...
 - 📫 How to reach me.. My insta id - https://www.instagram.com/aadijha13/ |
--  linkwdin - https://www.linkedin.com/in/sudhanshu-shekhar-1a12aa272/
+-  linkedin - https://www.linkedin.com/in/sudhanshu-shekhar-1a12aa272/
 - 😄 Pronouns: Aadi
 - ⚡ Fun fact: I love sleep🥹
 
