@@ -1,5 +1,5 @@
 - 👋 Hi, I’m Sudhanshu Shekhar.
-- 👀 I’m interested in Coding, Tech, photographe, sleep
+- 👀 I’m interested in Coding, Tech, photography, sleep
 - 🌱 I’m currently learning Ai/Ml
 - 💞️ I’m looking to collaborate on ...
 - 📫 How to reach me.. My insta id - https://www.instagram.com/aadijha13/ |
