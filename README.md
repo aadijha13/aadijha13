@@ -1,6 +1,6 @@
 - 👋 Hi, I’m Sudhanshu Shekhar.
 - 👀 I’m interested in Coding, Tech, photography, sleep
-- 🌱 I’m currently learning Ai/Ml
+- 🌱 I’m currently learning Ethical Hacking
 - 💞️ I’m looking to collaborate on ...
 - 📫 How to reach me.. My insta id - https://www.instagram.com/aadijha13/ |
 -  linkedin - https://www.linkedin.com/in/sudhanshu-shekhar-1a12aa272/
