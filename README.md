@@ -1,4 +1,4 @@
-# 👋 Hi, I’m Sudhanshu Shekhar (aka Aadi)
+# 👋 Hi, I’m Sudhanshu Shekhar (Aadi)
 
 🎯 **Aspiring Data Analyst & Data Scientist | Tech Enthusiast | Curious Learner**
 
