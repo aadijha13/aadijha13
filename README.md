@@ -15,7 +15,7 @@
 
 ## 🌱 Currently Learning
 - **Data Analytics**: Python, SQL, Excel, Power BI  
-- **Data Science**: Pandas, NumPy, Scikit-learn, Matplotlib, Jupyter Notebooks  
+- **Data Science**: Pandas, NumPy, Scikit-learn, Matplotlib, Jupyter Notebooks, Machine Learining
 
 ---
 
