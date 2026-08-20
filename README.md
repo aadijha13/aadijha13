@@ -35,10 +35,6 @@
 ## 😄 Pronouns
 **He/Him** — but feel free to call me **Aadi**
 
----
-
-## ⚡ Fun Fact
-I'm probably the only person who dreams about debugging code... and then oversleeps 🥲
 
 ---
 
